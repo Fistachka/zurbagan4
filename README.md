@@ -32,3 +32,8 @@ Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/7ef9f5f6-a12e-4102-93c7-ee64b2047c7d =200x200)
 stolbitsa.com/fistachka/zurbagan<br><br>
 
+![8](https://github.com/user-attachments/assets/24995372-a1e3-4df6-b94f-47be14f873b5)
+![7](https://github.com/user-attachments/assets/7df95dcc-1e3c-4247-acae-66de63832c11)
+
+
+
